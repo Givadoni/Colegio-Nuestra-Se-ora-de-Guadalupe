@@ -1,1 +1,0 @@
-# Colegio-Nuestra-Se-ora-de-Guadalupe
